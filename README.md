@@ -43,5 +43,36 @@ For 4 servings:
 - If the mascarpone cheese is too cold, it will not dissolve completely.
   It is important to bring it to room temperature before using it.
 
+## Parsnip soup
 
+This is a recipe from my neigbour, Mrs. Tamiko.
 
+### Ingredients
+
+For 6 servings:
+
+- Parsnip 500 g
+- Onion middle size 2-3
+- Butter or olive oil 2 tbsp
+- Milk 300-500 ml
+- Punpkin seed oil
+- Salt
+- Pine nuts
+
+The quantity of ingredients can be adjusted appropriately.
+Only the saltiness should be adjusted by tasting.
+
+### Steps
+
+1. Peel the parsnips and onions, and cut them into small pieces.
+2. Heat the butter or olive oil in a pot, add the onions, and cook them until they become brown.
+3. Add the parsnips and water to the pot, and cook them until they become soft (20-30 min).
+4. Blend the parsnips and onions with a blender until smooth.
+5. Add milk to the pot and heat it.
+6. Add salt to taste.
+7. Serve the soup in a bowl, and add pumpkin seed oil and pine nuts on top.
+
+### Notes
+
+- The soup can be served hot or cold.
+- The pumpkin seed oil and pine nuts can be replaced with other toppings.
