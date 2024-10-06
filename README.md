@@ -76,3 +76,68 @@ Only the saltiness should be adjusted by tasting.
 
 - The soup can be served hot or cold.
 - The pumpkin seed oil and pine nuts can be replaced with other toppings.
+
+## Tofu from soy beans
+
+### Ingredients
+
+For one block of tofu
+
+- Soy beans 300 g
+- Water 1.5 L
+- Nigari 1 tsp
+
+### Steps
+
+1. Soak the soy beans in water for 12 hours.
+   When the beans are soaked, the split surface of soy beans should be flat.
+2. Blend the soy beans with water until smooth.
+3. Heat the soy bean paste in a pot until it becomes boiling, and keep boiling for 10 min.
+4. Filter the soy bean paste with a cloth and squeeze the soy milk.
+   The remaining soy bean paste is called okara, and it can be used for other recipes.
+5. Dissolve nigari in half cup of 50 degree Celsius water.
+6. Heat the soy milk in a pot until it 75 degree Celsius.
+7. Slowly pour the dissolved nigari into the warmed soy milk.
+8. Stir the soy milk gently, and stop heating. Keep it warm for 20-30 min.
+   Soy milk will separate into tofu and whey.
+9. Filter the tofu with a cloth and press it with a weight.
+10. Pour the hardened tofu into the tofu box.
+11. Put some weight on the tofu box and wait for 1-2 hours.
+12. Remove the tofu from the box in a water bowl.
+
+## Apfelzimtschnecken
+
+### Ingredients
+
+For 12-16 pieces:
+
+Dough:
+- Flour 500 g
+- Sugar 80 g
+- Egg 1
+- Butter 80 g
+- Milk 200 ml
+- Yeast 10 g
+- Salt 1 tsp
+
+Filling:
+- Apple 4
+- Sugar 50 g
+- Cinnamon 1 tbsp
+- Butter 70 g
+- Lemon juice 1 tbsp
+
+### Steps
+
+1. Make the dough.
+2. Make the filling. Cut the apples into small pieces, and cook them in a pan
+   with sugar, cinnamon, butter, and lemon juice until they become soft.
+3. Spread the dough on a table, and spread the filling on the dough.
+4. Roll the dough with the filling, and cut it into 12-16 pieces.
+5. Place the pieces on a baking tray, and bake them in an oven at 160 degree Celsius for 20-30 min.
+
+### Notes
+
+- Slow fermentation of the dough may taste better.
+- If the dough is spread thin, it is difficult to roll it out, but it will expand quite a bit when baked.
+- Be careful not to overbake. It may be better to bake it only from the top.
